@@ -7,7 +7,7 @@
 
   About Myself
 
-  I graduated from St.Thomas (Autonomous) College,Thrissur,Kerala in course of Bsc. Electronics.
+  I graduated from St.Thomas (Autonomous) College,Thrissur,Kerala in the course of Bsc. Electronics.
   
 
 
